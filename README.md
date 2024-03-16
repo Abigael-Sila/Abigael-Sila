@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on android apps and websites
 - 📫 How to reach me - abigaelkalundesila@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: im a caffeine enthusiast...
+- ⚡ Fun fact: I can sing🎤🎶
 
 <!---
 Abigael-Sila/Abigael-Sila is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
